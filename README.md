@@ -1,6 +1,5 @@
 ### One of those people, actually 💯 #schubergphilis
 
-Also want to work in self-steering teams that put experts in the lead? 😃 Check out our latest [vacancies](https://schubergphilis.com/en/careers).
 <!--
 **justindotcloud/justindotcloud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
